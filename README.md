@@ -37,4 +37,5 @@
 مدرسة الضمير الواقعي للفكر
 منصة سنبلة – 2026
 جميع الحقوق محفوظة ©
+
 <img width="768" height="1376" alt="1000220453" src="https://github.com/user-attachments/assets/feaf33cb-6e8d-48b8-a541-41db4cc25d13" />
